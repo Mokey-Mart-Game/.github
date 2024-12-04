@@ -2,8 +2,6 @@
 
 ## [Play Monkey Mart Online!](https://apkitech.com/monkey-mart/)
 
-## [Play SPrunki Unblocked](https://github.com/sprunki-phase-1-mod-play-online)
-
 ![image](https://github.com/user-attachments/assets/9d1605bf-b667-427a-b93e-1c97bb16f408)
 
 Monkey Mart is an idle/management game where you control a cute monkey character who is in charge of a supermarket. Plant fruits, harvest produce, and move around from station to station to fill the stands with various food items. Sell bananas, corn, eggs, peanuts, coffee beans, chocolate, wheat, and more! Your customers will pick them up and wait for you at the cashier desk—simply stand next to the cash register to collect your money.  
@@ -90,3 +88,48 @@ You can play Monkey Mart directly in your browser or on mobile without downloadi
 ## **Credits**
 
 Monkey Mart was created by **TinyDobbins**, the creators of popular games like Stick Defenders, Stick Merge, Merge Round Racers, and more.
+
+
+https://github.com/kia-co-gai-oi/rejekibet-apk
+
+https://github.com/rp777com/rp777
+
+https://github.com/mt777com/mt777/
+
+https://github.com/an777com/an777
+
+https://github.com/hp777com/hp777
+
+https://github.com/pt777com/pt777
+
+https://github.com/qt777com/qt777
+
+https://github.com/sp777com/sp777
+
+https://github.com/sr777com/sr777
+
+https://github.com/pc777com/pc777
+
+https://github.com/jayaslotcom/jayaslot
+
+https://github.com/at777comn/at777
+
+https://github.com/55kbetcom/55kbet
+
+https://github.com/spinhartacom/spinharta
+
+https://github.com/browin88com/browin88
+
+https://github.com/rr777com/rr777
+
+https://github.com/898acomn/898a
+
+https://github.com/ina777comm/ina777
+
+https://github.com/yn777com/yn777
+
+https://github.com/delta-executor-android
+
+https://github.com/bappam-tv-android
+
+https://github.com/sprunki-corruptbox/sprunki-corruptbox
